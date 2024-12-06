@@ -1,0 +1,1 @@
+# Porcentage_2sec_satisfactorio
